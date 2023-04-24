@@ -1,1 +1,1 @@
-Développeur web - web mobile
+Développeur web et web mobile
