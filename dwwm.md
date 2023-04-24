@@ -1,1 +1,1 @@
-Développeur web - web mobile (DWWM)
+Développeur web - web mobile
